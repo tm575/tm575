@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tm575 (Abdulhadi Uddin)
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning to become a sofware engineer
+- 📫 How to reach me: Send me a mio
+- ⚡ Fun fact: I love reading manhwa :D
